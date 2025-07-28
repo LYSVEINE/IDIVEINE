@@ -11,6 +11,10 @@
 
 ━━╋━ ![♡](https://files.catbox.moe/i65pc2.gif) **I'm a bit shy and awkard at first, but I try my best when interacting so please interact, I promise I'm nice! ^^ㅤ𝆤†**
 
+━━╋━ ![♡](https://files.catbox.moe/i65pc2.gif) **Other links:**
+**[❶](https://rentry.co/lovidia) , [❷](https://idiveine.atabook.org/)ㅤ𝆤†**
+
+
 **PS. You should stan Idiveine and it should be your otp ... Also follow @Gloomiau :3**
 
 ![divider creds to .co/helltaker](https://files.catbox.moe/xdwjzk.png)
