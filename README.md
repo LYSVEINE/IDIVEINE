@@ -5,7 +5,7 @@
 
 ━━╋━ ![♡](https://files.catbox.moe/wu05ak.gif) **My DNI is** ***[the basic criteria](https://dni-criteria.carrd.co/).*** **I don't care about what you enjoy in fiction at all, but refrain from interacting if you like loli/shota, minor x adult, incest, and so on as it makes me uncomfortable. And also please DNI if: you see AdminVirus (1x7 & Shedlestky) as proship/father & daughter, if you dislike Buildermon, if you dislike Telamon, Shedlestky & 1x7, if you mischaracterize any of the characters mentioned above, and if you're anti-xenogender/mogai.ㅤ𝆤𖹭**
 
-━━╋━ ![♡](https://files.catbox.moe/i65pc2.gif) **I use she/her & they/them on various Forsaken characters, like 1x7. If you correct me, I'll probably just block you! ૮꒰ ྀི› _ ‹ ꒱ა You don't have to agree with me, just leave me with my headcannons!ㅤ𝆤†**
+━━╋━ ![♡](https://files.catbox.moe/i65pc2.gif) **I use she/her & they/them on various Forsaken characters, like 1x7. If you correct me, I'll probably just block you! You don't have to agree with me, just leave me with my headcannons!ㅤ𝆤†**
 
 ━━╋━ ![♡](https://files.catbox.moe/wu05ak.gif) **I change interests frequently. Forsaken & Roblox are currently my biggest interest! I also like Twisted Wonderland, though not that much anymore & K-pop Demon Hunters! Some of my other interests are: Gacha games, Genshin Impact, Monster High, Ever After High, Barbie, Rainbow High, Bungo Stray Dogs, Death Note, Kuroshitsuji, Precure, Epic The Musical, Hadestown, Round 6 & Alice in Wonderland. I also like some other things like dolls, makeup, fashion, subcultures, horror, history and true crime.ㅤ𝆤𖹭**
 
