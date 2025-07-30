@@ -9,7 +9,7 @@
 
 ━━╋━ ![♡](https://files.catbox.moe/wu05ak.gif) **I change interests frequently. Forsaken & Roblox are currently my biggest interest! I also like Twisted Wonderland, though not that much anymore & K-pop Demon Hunters! Some of my other interests are: Gacha games, Genshin Impact, Monster High, Ever After High, Barbie, Rainbow High, Bungo Stray Dogs, Death Note, Kuroshitsuji, Precure, Epic The Musical, Hadestown, Round 6 & Alice in Wonderland. I also like some other things like dolls, makeup, fashion, subcultures, horror, history and true crime.ㅤ𝆤𖹭**
 
-━━╋━ ![♡](https://files.catbox.moe/i65pc2.gif) **I'm a bit shy and awkard at first, but I try my best when interacting so please interact, I promise I'm nice! ^^ㅤ𝆤†**
+━━╋━ ![♡](https://files.catbox.moe/i65pc2.gif) **BYI: I'm a bit shy and awkard at first, but I try my best when interacting so please interact, I promise I'm nice! ^^ I speak in third person sometimes or speak to myself out loud! If it bothers, tell me so I can refrain from doing it near you! I can't promise I can since it's a bit of a automatic thing from me, but I can try! ^_^ㅤ𝆤†**
 
 **PS. You should stan Idiveine and it should be your otp ... Also follow @Gloomiau :3**
 
